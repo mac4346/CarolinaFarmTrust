@@ -6,7 +6,7 @@ No matter where we live or visit, there are usually some type(s) of local activi
  &nbsp;
 It is important that we support local farms since they are the ones giving us fresh produce, applying sustainable agriculture methods, minimizing toxic outputs to our environment, producing minimally processed foods for us, supporting ethical treatment of animals, and many other benefits. Local farmers are a great way to connect with our community. Whether you live in Eastern North Carolina, are on vacation, or even just passing through, here is a list of 10 local farms you want to take a trip to and what you can experience with each one.  
 &nbsp;
-#### 1. MikeÕs Farm 
+#### 1. Mike's Farm 
 **Location:** Beulaville, NC
 **Pros:** Agritourism is the goal of this alluring farm, open year round to visitors and the general public. What this means is that the farm has agriculturally based operations aimed to bring visitors (you and I) to the farm. They educate the general public on local farming and the processes behind harvesting of varying crops. 
 **Activities:** This farm has an onsite restaurant with fresh country food so come hungry. They are open for wedding and event reservations as well. Every season holds different activities, whether it is pumpkin picking and hayrides in the fall, Christmas light shows in the winter, or strawberry picking in the summer. MikeÕs Farm has an onsite bakery as well so do not leave before trying some fresh goods. 
@@ -20,7 +20,7 @@ http://mikesfarm.com
 **Website for further information:**
 http://www.rmfpasturepuremeats.com/About_Us.htm
 
-#### 3. HubbÕs Farm 
+#### 3. Hubb's Farm 
 **Location:** Clinton, NC
 **Pros:** This farm is education based and offers many ways for groups, small or large, to visit their site and learn about various farm practices through fun activities and engagement. You can help share this passion with the Peterson family while having a grand time yourself.
 **Activities:** This is home of HubbÕs Farm Corn Maze for people of all ages. The corn maze is their most popular attraction but while there they offer educational tours and experiences around the farm. You can even schedule to book a party or gathering onsite.

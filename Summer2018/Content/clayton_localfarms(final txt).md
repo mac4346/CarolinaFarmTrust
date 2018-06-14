@@ -3,7 +3,6 @@
 ##### Written by: Destiny Clayton  
 
 No matter where we live or visit, there are usually some type(s) of local activities around us that we can bring the whole family to. Sometimes it is overlooked that a lot of our local farms encourage visits from the public and offer engaging activities to get involved with while there.  
- &nbsp;
  
 It is important that we support local farms since they are the ones giving us fresh produce, applying sustainable agriculture methods, minimizing toxic outputs to our environment, producing minimally processed foods for us, supporting ethical treatment of animals, and many other benefits. Local farmers are a great way to connect with our community. Whether you live in Eastern North Carolina, are on vacation, or even just passing through, here is a list of 10 local farms you want to take a trip to and what you can experience with each one.  
 &nbsp;

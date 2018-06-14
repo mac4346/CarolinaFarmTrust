@@ -1,5 +1,4 @@
-### 10 Local Farms You Must Visit 
-### in Eastern North Carolina 
+### 10 Local Farms You Must Visit in Eastern North Carolina 
 ##### Written by: Destiny Clayton  
 
 No matter where we live or visit, there are usually some type(s) of local activities around us that we can bring the whole family to. Sometimes it is overlooked that a lot of our local farms encourage visits from the public and offer engaging activities to get involved with while there.  
@@ -11,7 +10,7 @@ It is important that we support local farms since they are the ones giving us fr
 
 **Pros:** Agritourism is the goal of this alluring farm, open year round to visitors and the general public. What this means is that the farm has agriculturally based operations aimed to bring visitors (you and I) to the farm. They educate the general public on local farming and the processes behind harvesting of varying crops. 
 
-**Activities:** This farm has an onsite restaurant with fresh country food so come hungry. They are open for wedding and event reservations as well. Every season holds different activities, whether it is pumpkin picking and hayrides in the fall, Christmas light shows in the winter, or strawberry picking in the summer. MikeÕs Farm has an onsite bakery as well so do not leave before trying some fresh goods. 
+**Activities:** This farm has an onsite restaurant with fresh country food so come hungry. They are open for wedding and event reservations as well. Every season holds different activities, whether it is pumpkin picking and hayrides in the fall, Christmas light shows in the winter, or strawberry picking in the summer. Mike's Farm has an onsite bakery as well so do not leave before trying some fresh goods. 
 
 **Website for further information:**
 http://mikesfarm.com
@@ -21,7 +20,7 @@ http://mikesfarm.com
 
 **Pros:** This is a 300-acre farm with natural grass grazing livestock. The Garner family owns it and they raise their livestock without the use of any chemicals and by using organic compost from their barns. Their meat products are raised sustainably and are nutrient dense. The animals receive a natural diet that has been shown to increase heart health in humans as well. 
 
-**Activities:** Their products are available at various farmerÕs markets or you can put an order together online and stop at the farm to pick it up. While there, you can see for yourself the ethical treatment of the animals and pastures along with the methods used to provide you with the some of the best produce. 
+**Activities:** Their products are available at various farmer's markets or you can put an order together online and stop at the farm to pick it up. While there, you can see for yourself the ethical treatment of the animals and pastures along with the methods used to provide you with the some of the best produce. 
 
 **Website for further information:**
 http://www.rmfpasturepuremeats.com/About_Us.htm
@@ -31,7 +30,7 @@ http://www.rmfpasturepuremeats.com/About_Us.htm
 
 **Pros:** This farm is education based and offers many ways for groups, small or large, to visit their site and learn about various farm practices through fun activities and engagement. You can help share this passion with the Peterson family while having a grand time yourself.
 
-**Activities:** This is home of HubbÕs Farm Corn Maze for people of all ages. The corn maze is their most popular attraction but while there they offer educational tours and experiences around the farm. You can even schedule to book a party or gathering onsite.
+**Activities:** This is home of Hubb's Farm Corn Maze for people of all ages. The corn maze is their most popular attraction but while there they offer educational tours and experiences around the farm. You can even schedule to book a party or gathering onsite.
 
 **Website for further information:** 
 http://hubbsfarmnc.com
@@ -41,7 +40,7 @@ http://hubbsfarmnc.com
 
 **Pros:** These crops are ethically farmed and harvested for the climate of Eastern North Carolina. Their mission is to please their customers through fresh produce, which in turn provides support for local families and employees. 
 
-**Activities:** Enjoy a day picking out fresh strawberries and if you are lucky to visit during the summer months, you can also pick fresh blueberries and blackberries. You get to pick as many as you would like, with the price being based off how much your bucket weighs when you are finished. They even have ice cream onsite with their fresh fruit in it. LetÕs just say, ÒYum!Ó
+**Activities:** Enjoy a day picking out fresh strawberries and if you are lucky to visit during the summer months, you can also pick fresh blueberries and blackberries. You get to pick as many as you would like, with the price being based off how much your bucket weighs when you are finished. They even have ice cream onsite with their fresh fruit in it. Let's just say,"Yum!"
 
 **Website for further information:**
 http://www.lewisfarms.com
@@ -99,7 +98,7 @@ https://www.martinfarmandwinery.com
 #### 10. Jackson Farm
 **Location:** Godwin, NC
 
-**Pros:** Jackson FarmÕs goal is to supply seasonal food through the use of sustainable agriculture. Along with their 150-acre farm, they have a wildlife sanctuary onsite to support further efforts to protect and sustain nature. 
+**Pros:** Jackson Farm's goal is to supply seasonal food through the use of sustainable agriculture. Along with their 150-acre farm, they have a wildlife sanctuary onsite to support further efforts to protect and sustain nature. 
 
 **Activities:** You can choose to stay overnight in their guesthouse and get a true family farm feel or you can stop by and tour the land along with pre-civil war buildings. There is a birding trail that offers scenic views of untouched nature. Feel free to stay and relax here for a bit!
 
